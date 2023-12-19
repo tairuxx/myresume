@@ -1,0 +1,1 @@
+I chose to made this code because it's easy to use and navigate. Whether you're a beginner or experienced, it's designed to be straightforward. You can move through the features effortlessly for a smooth experience. I wanted to keep this as simple and user-friendly.
